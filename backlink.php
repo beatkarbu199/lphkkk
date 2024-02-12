@@ -13,7 +13,7 @@
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
 <a href="https://fisip.umj.ac.id/wp-content/server/">slot thailand</a>
 <a href="https://ciruas.serangkab.go.id/vendor/xgcorr/">slot gacor</a>
-<a href="https://sia.umgo.ac.id/fb/gcorr/">bandar togel</a>
+<a href="https://ciruas.serangkab.go.id/storage/ibu/">slot online</a>
 <a href="https://education.unib.ac.id/wp-content/uploads/xigcorr/">ibu4d</a>
 <a href="https://www.dealwithculture.com/">ibu4d</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/">bandar togel terpercaya</a>
@@ -21,4 +21,6 @@
 <a href="https://banjarnegarakab.go.id/main/wp-content/gacor-bos/">slot gacor</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/api/lp.php">slot gacor</a>
 <a href="https://banjarnegarakab.go.id/main/bandar/">slot gacor</a>
+<a href="https://data-sektoral.pringsewukab.go.id/assets/jp/">slot online</a>
+<a href="https://disnaker.indramayukab.go.id/wp-content/thai/">slot thailand</a>
      </div>
