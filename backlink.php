@@ -18,7 +18,7 @@
 <a href="https://www.dealwithculture.com/">ibu4d</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/">bandar togel terpercaya</a>
 <a href="https://sipenmaru.poltekkes-smg.ac.id/storage/cmsz/">slot gacor</a>
-<a href="https://banjarnegarakab.go.id/main/wp-content/gacor-bos/">slot gacor</a>
+<a href="https://ciruas.serangkab.go.id/storage/ibu/">slot gacor</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/api/lp.php">slot gacor</a>
 <a href="https://banjarnegarakab.go.id/main.html">slot gacor</a>
 <a href="https://ciruas.serangkab.go.id/storage/ibu/">slot online</a>
