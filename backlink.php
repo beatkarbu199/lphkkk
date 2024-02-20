@@ -13,7 +13,7 @@
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
 <a href="https://fisip.umj.ac.id/wp-content/server/">slot thailand</a>
 <a href="https://ciruas.serangkab.go.id/vendor/xgcorr/">slot gacor</a>
-<a href="https://sia.umgo.ac.id/fb/gcorr/">bandar togel</a>
+<a href="https://ulcc.unitomo.ac.id/style/lib/">slot bonus</a>
 <a href="https://education.unib.ac.id/wp-content/uploads/xigcorr/">ibu4d</a>
 <a href="https://www.dealwithculture.com/">ibu4d</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/">bandar togel terpercaya</a>
