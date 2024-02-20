@@ -23,7 +23,7 @@
 <a href="https://banjarnegarakab.go.id/main.html">slot gacor</a>
 <a href="https://ciruas.serangkab.go.id/storage/ibu/">slot gacor</a>
 <a href="https://ab.mtsnkotamadiun.sch.id/sw-content/4d/index.php">IBU4D</a>
-<a href="https://disnaker.indramayukab.go.id/wp.html">slot gacor</a>
+<a href="https://e-renggar.kemkes.go.id/images/img/thai/">slot gacor</a>
 <a href="https://data-sektoral.pringsewukab.go.id/uploads/tgl/">bandar togel</a>
 <a href="https://data-sektoral.pringsewukab.go.id/main.html">slot 4d</a>
      </div>
