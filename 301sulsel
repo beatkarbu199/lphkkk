@@ -1,0 +1,4 @@
+<?php
+header("Location: https://sipbm.sulselprov.go.id/sipbmats/web/assets/gacorr/", true, 301);
+exit();
+?>
