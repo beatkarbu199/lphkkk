@@ -9,7 +9,7 @@
 <a href="https://vhrmedia.com/">slot gacor</a>
 <a href="https://e-sakip.situbondokab.go.id/img/sigcor/">slot gacor</a>
 <a href="https://dealwithculture.com/">IBU4D</a>
-<a href="https://e-sakip.situbondokab.go.id/jgcor/"">slot gacor</a>
+<a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/gacorr/"">slot gacor</a>
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
 <a href="https://fisip.umj.ac.id/wp-content/server/">slot thailand</a>
 <a href="https://ciruas.serangkab.go.id/vendor/xgcorr/">slot gacor</a>
