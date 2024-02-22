@@ -24,6 +24,6 @@
 <a href="https://ciruas.serangkab.go.id/storage/ibu/">slot gacor</a>
 <a href="https://ab.mtsnkotamadiun.sch.id/sw-content/4d/index.php">IBU4D</a>
 <a href="https://e-renggar.kemkes.go.id/images/img/thai/">slot gacor</a>
-<a href="https://data-sektoral.pringsewukab.go.id/uploads/tgl/">bandar togel</a>
-<a href="https://data-sektoral.pringsewukab.go.id/main.html">slot 4d</a>
+<a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/gacorr/">bandar togel</a>
+<a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/4d/">togel online</a>
      </div>
