@@ -5,7 +5,7 @@
 <a href="https://e-meso.pom.go.id/web/useruploads/ibu/">ibu4d</a>
 <a href="https://inspirationmars.com/">bandar togel terpercaya</a>
 <a href="https://e-sakip.situbondokab.go.id/js/ibu/">bandar togel</a>
-<a href="https://lamongankab.go.id/beranda/xigacorr/index.php">slot gacor</a>
+<a href="https://itikdiskominfo.bantenprov.go.id/gcorr/">slot gacor</a>
 <a href="https://vhrmedia.com/">slot gacor</a>
 <a href="https://e-sakip.situbondokab.go.id/img/sigcor/">slot gacor</a>
 <a href="https://dealwithculture.com/">IBU4D</a>
@@ -17,7 +17,7 @@
 <a href="https://education.unib.ac.id/wp-content/uploads/xigcorr/">ibu4d</a>
 <a href="https://www.dealwithculture.com/">ibu4d</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/">bandar togel terpercaya</a>
-<a href="https://sdi.babelprov.go.id/sektoral/pasti-gacorr/">slot 4d</a>
+<a href="https://eletter.bantenprov.go.id/4d/">slot 4d</a>
 <a href="https://banjarnegarakab.go.id/main/wp-content/gacor-bos/">slot gacor</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/api/lp.php">slot gacor</a>
 <a href="https://banjarnegarakab.go.id/main.html">slot gacor</a>
