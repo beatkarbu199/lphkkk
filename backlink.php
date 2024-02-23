@@ -7,7 +7,7 @@
 <a href="https://e-sakip.situbondokab.go.id/js/ibu/">bandar togel</a>
 <a href="https://lamongankab.go.id/beranda/xigacorr/index.php">slot gacor</a>
 <a href="https://vhrmedia.com/">slot gacor</a>
-<a href="https://e-sakip.situbondokab.go.id/img/sigcor/">slot gacor</a>
+<a href="https://humaniora.uin-malang.ac.id/api.html">slot server thailand</a>
 <a href="https://dealwithculture.com/">IBU4D</a>
 <a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/gacorr/"">slot gacor</a>
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
