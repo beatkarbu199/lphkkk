@@ -1,6 +1,6 @@
    <div style="display: none;">
 <a href="https://simones.bandung.go.id/si-gacorr/index.php">slot gacor</a>
-<a href="https://education.unib.ac.id/wp-content/uploads/xigcorr/">slot gacor</a>
+<a href="https://ibu4d.design/">IBU4D</a>
 <a href="https://www.gantengidaman.pro/">IBU4D</a>
 <a href="https://csirt.bantenprov.go.id/ls/index.php">slot gacor</a>
 <a href="https://inspirationmars.com/">bandar togel terpercaya</a>
