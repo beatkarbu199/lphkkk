@@ -20,7 +20,7 @@
 <a href="https://sdi.babelprov.go.id/sektoral/pasti-gacorr/">slot 4d</a>
 <a href="https://banjarnegarakab.go.id/main/wp-content/gacor-bos/">slot gacor</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/api/lp.php">slot gacor</a>
-<a href="https://banjarnegarakab.go.id/main.html">slot gacor</a>
+<a href="https://espt.mitrakab.go.id/filesurat/kamboja/">slot 888</a>
 <a href="https://ciruas.serangkab.go.id/storage/ibu/">slot gacor</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">slot gacor</a>
 <a href="https://e-renggar.kemkes.go.id/images/img/thai/">slot gacor</a>
