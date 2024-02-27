@@ -5,7 +5,7 @@
 <a href="https://csirt.bantenprov.go.id/ls/index.php">slot gacor</a>
 <a href="https://inspirationmars.com/">bandar togel terpercaya</a>
 <a href="https://ipk.kemnaker.go.id/uploads/gcorr/">slot gacor</a>
-<a href="https://lamongankab.go.id/beranda/xigacorr/index.php">slot gacor</a>
+<a href="https://jaki.pta-bandung.go.id/4d/">slot 4d</a>
 <a href="https://vhrmedia.com/">slot gacor</a>
 <a href="https://humaniora.uin-malang.ac.id/api.html">slot server thailand</a>
 <a href="https://dealwithculture.com/">IBU4D</a>
