@@ -2,7 +2,7 @@
 <a href="https://simones.bandung.go.id/si-gacorr/index.php">slot gacor</a>
 <a href="https://ibu4d.design/">IBU4D</a>
 <a href="https://www.gantengidaman.pro/">IBU4D</a>
-<a href="https://csirt.bantenprov.go.id/ls/index.php">slot gacor</a>
+<a href="https://petaling.belitung.go.id/4d/">slot 4d</a>
 <a href="https://inspirationmars.com/">bandar togel terpercaya</a>
 <a href="https://sppd.banjarbaru-bagawi.id/-/">bandar togel terpercaya</a>
 <a href="https://jaki.pta-bandung.go.id/4d/">slot 4d</a>
