@@ -1,4 +1,4 @@
 <?php
-header("Location: https://petaling.belitung.go.id/4d/", true, 301);
+header("Location: https://petaling.belitung.go.id/jss/", true, 301);
 exit();
 ?>
