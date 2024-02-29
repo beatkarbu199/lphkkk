@@ -1,5 +1,5 @@
    <div style="display: none;">
-<a href="https://simones.bandung.go.id/si-gacorr/index.php">slot gacor</a>
+<a href="https://petaling.belitung.go.id/jss/">bandar togel</a>
 <a href="https://ibu4d.design/">IBU4D</a>
 <a href="https://www.gantengidaman.pro/">IBU4D</a>
 <a href="https://petaling.belitung.go.id/4d/">slot 4d</a>
