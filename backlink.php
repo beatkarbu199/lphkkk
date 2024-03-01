@@ -18,7 +18,7 @@
 <a href="https://www.dealwithculture.com/">ibu4d</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/">bandar togel terpercaya</a>
 <a href="https://sdi.babelprov.go.id/sektoral/pasti-gacorr/">slot 4d</a>
-<a href="https://banjarnegarakab.go.id/main/wp-content/gacor-bos/">slot gacor</a>
+<a href="https://purbasari.com/ibu/">slot 4d</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/api/lp.php">slot gacor</a>
 <a href="https://espt.mitrakab.go.id/filesurat/kamboja/">slot 888</a>
 <a href="https://ciruas.serangkab.go.id/storage/ibu/">slot gacor</a>
