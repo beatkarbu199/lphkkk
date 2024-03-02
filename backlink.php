@@ -12,7 +12,7 @@
 <a href="https://silintas.ppid.semarangkota.go.id/uploads/gacorr/">slot gacor</a>
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">Slot Gacor</a>
-<a href="https://ciruas.serangkab.go.id/vendor/xgcorr/">slot gacor</a>
+<a href="https://nilai.unitomo.ac.id/assets/img/">ibu4d</a>
 <a href="https://simontila.kemdikbud.go.id/alpha/upload/uploads/img/">slot gacor</a>
 <a href="https://e-renggar.kemkes.go.id/images/file/icn/"togel online</a>
 <a href="https://www.dealwithculture.com/">ibu4d</a>
