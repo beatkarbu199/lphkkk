@@ -17,7 +17,7 @@
 <a href="https://e-renggar.kemkes.go.id/images/file/icn/"togel online</a>
 <a href="https://www.dealwithculture.com/">ibu4d</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/">bandar togel terpercaya</a>
-<a href="https://sdi.babelprov.go.id/sektoral/pasti-gacorr/">slot 4d</a>
+<a href="https://economic.unib.ac.id/wp.html">slot gacor</a>
 <a href="https://purbasari.com/ibu/">slot 4d</a>
 <a href="https://jaki.pta-bandung.go.id/images/bdrtgl/api/lp.php">slot gacor</a>
 <a href="https://petaling.belitung.go.id/js/css/">slot gacor</a>
