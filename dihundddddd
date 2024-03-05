@@ -1,4 +1,0 @@
-<?php
-header("Location: https://dishub.ppid.semarangkota.go.id/api.html", true, 301);
-exit();
-?>
