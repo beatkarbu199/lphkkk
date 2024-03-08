@@ -12,7 +12,7 @@
 <a href="https://fsi.fkip.unja.ac.id/wp-content/idn/">888 slot</a>
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">Slot Gacor</a>
-<a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/4d-gacor/">slot gacor</a>
+<a href="https://erp.petrolab.co.id/temp_email/ibu4d/">ibu4d</a>
 <a href="https://simontila.kemdikbud.go.id/alpha/upload/uploads/img/">slot gacor</a>
 <a href="https://www.dealwithculture.com/">ibu4d</a>
 <a href="https://gallery.sim.co.id/vendor/bonus/">slot bonus</a>
