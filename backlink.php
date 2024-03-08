@@ -9,7 +9,7 @@
 <a href="https://vhrmedia.com/">slot gacor</a>
 <a href="https://humaniora.uin-malang.ac.id/api.html">slot server thailand</a>
 <a href="https://dealwithculture.com/">IBU4D</a>
-<a href="https://silintas.ppid.semarangkota.go.id/uploads/gacorr/">slot gacor</a>
+<a href="https://fsi.fkip.unja.ac.id/wp-content/idn/">888 slot</a>
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">Slot Gacor</a>
 <a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/4d-gacor/">slot gacor</a>
