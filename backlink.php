@@ -18,7 +18,7 @@
 <a href="https://gallery.sim.co.id/vendor/bonus/">slot bonus</a>
 <a href="https://economic.unib.ac.id/wp.html">slot gacor</a>
 <a href="https://purbasari.com/ibu/">slot 4d</a>
-<a href="https://jaki.pta-bandung.go.id/images/bdrtgl/api/lp.php">slot gacor</a>
+<a href="https://simrs.rsmanambai.ntbprov.go.id/">link gacor</a>
 <a href="https://petaling.belitung.go.id/js/css/">slot gacor</a>
 <a href="https://lppmp.unimed.ac.id/wp-content/img/">slot gacor</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">slot gacor</a>
