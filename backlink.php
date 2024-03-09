@@ -16,7 +16,7 @@
 <a href="https://simontila.kemdikbud.go.id/alpha/upload/uploads/img/">slot gacor</a>
 <a href="https://www.dealwithculture.com/">ibu4d</a>
 <a href="https://gallery.sim.co.id/vendor/bonus/">slot bonus</a>
-<a href="https://economic.unib.ac.id/wp.html">slot gacor</a>
+<a href="https://csr.brebeskab.go.id/public/dataupload/berita/fb/">slot88</a>
 <a href="https://purbasari.com/ibu/">slot 4d</a>
 <a href="https://simrs.rsmanambai.ntbprov.go.id/">link gacor</a>
 <a href="https://petaling.belitung.go.id/js/css/">slot gacor</a>
