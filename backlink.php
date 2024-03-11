@@ -13,7 +13,7 @@
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">Slot Gacor</a>
 <a href="https://erp.petrolab.co.id/temp_email/ibu4d/">ibu4d</a>
-<a href="https://humaniora.uin-malang.ac.id/helo/gacorr/">slot gacor 77</a>
+<a href="https://rsmanambai.ntbprov.go.id/js/">slot gacor 77</a>
 <a href="https://www.dealwithculture.com/">ibu4d</a>
 <a href="https://gallery.sim.co.id/vendor/bonus/">slot bonus</a>
 <a href="https://csr.brebeskab.go.id/public/dataupload/berita/fb/">slot88</a>
