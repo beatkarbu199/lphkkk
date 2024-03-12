@@ -1,6 +1,6 @@
    <div style="display: none;">
-<a href="https://petaling.belitung.go.id/jss/">bandar togel</a>
-<a href="https://siakad.sipakatau.iainpalopo.ac.id/kelas/gacorr/">link gacor</a>
+<a href="https://cozigosto.pt/ibu/">ibu4d</a>
+<a href="https://itechtelemedia.co.id/ibu/">IBU4D</a>
 <a href="https://www.gantengidaman.pro/">IBU4D</a>
 <a href="https://dishub.ppid.semarangkota.go.id/api.html">slot 4d</a>
 <a href="https://inspirationmars.com/">bandar togel terpercaya</a>
