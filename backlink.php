@@ -1,5 +1,5 @@
    <div style="display: none;">
-<a href="https://cozigosto.pt/ibu/">ibu4d</a>
+<a href="https://disdikbudkabbatang.com/lib/">ibu4d</a>
 <a href="https://itechtelemedia.co.id/ibu/">IBU4D</a>
 <a href="https://www.gantengidaman.pro/">IBU4D</a>
 <a href="https://dishub.ppid.semarangkota.go.id/api.html">slot 4d</a>
