@@ -1,4 +1,0 @@
-<?php
-header("Location: https://www.gantengidaman.pro/", true, 301);
-exit();
-?>
