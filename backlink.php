@@ -12,7 +12,7 @@
 <a href="https://dev.rsmanambai.ntbprov.go.id/js/shop/">slot88</a>
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">Slot Gacor</a>
-<a href="https://erp.petrolab.co.id/temp_email/ibu4d/">ibu4d</a>
+<a href="https://isfm.faperika.unri.ac.id/wp-includes/to/">toto togel</a>
 <a href="https://rsmanambai.ntbprov.go.id/js/">slot gacor 77</a>
 <a href="https://www.dealwithculture.com/">ibu4d</a>
 <a href="https://gallery.sim.co.id/vendor/bonus/">slot bonus</a>
