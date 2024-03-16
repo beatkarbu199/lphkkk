@@ -8,7 +8,7 @@
 <a href="https://logbook.fk.undip.ac.id/koas/gcorr/">slot gacor</a>
 <a href="https://eagenda.batangkab.go.id/vendor/js/">bandar togel</a>
 <a href="https://humaniora.uin-malang.ac.id/api.html">slot server thailand</a>
-<a href="https://logbook.fk.undip.ac.id/koas/">slot gacor</a>
+<a href="http://ekinerja.tvri.go.id/dokfile_export/gcor/">slot gacor</a>
 <a href="https://dev.rsmanambai.ntbprov.go.id/js/shop/">slot88</a>
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">Slot Gacor</a>
