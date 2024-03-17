@@ -5,7 +5,7 @@
 <a href="https://dishub.ppid.semarangkota.go.id/api.html">slot 4d</a>
 <a href="https://inspirationmars.com/">bandar togel terpercaya</a>
 <a href="https://sppd.banjarbaru-bagawi.id/-/">bandar togel terpercaya</a>
-<a href="https://logbook.fk.undip.ac.id/koas/gcorr/">slot gacor</a>
+<a href="https://aursati.desa.id/">toto slot 4d</a>
 <a href="https://eagenda.batangkab.go.id/vendor/js/">bandar togel</a>
 <a href="https://fisip.umj.ac.id/wp-content/upgrade/pro/">slot server thailand</a>
 <a href="http://ekinerja.tvri.go.id/dokfile_export/gcor/">slot gacor</a>
