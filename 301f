@@ -1,4 +1,0 @@
-<?php
-header("Location: https://economic.unib.ac.id/wp.html", true, 301);
-exit();
-?>
