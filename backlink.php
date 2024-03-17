@@ -22,7 +22,7 @@
 <a href="https://petaling.belitung.go.id/js/css/">slot gacor</a>
 <a href="https://lppmp.unimed.ac.id/wp-content/img/">slot gacor</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">slot gacor</a>
-<a href="https://e-renggar.kemkes.go.id/images/img/thai/">slot gacor</a>
+<a href="https://report.ppid.semarangkota.go.id/">slot gacor</a>
 <a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/gacorr/">bandar togel</a>
 <a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/4d/">togel online</a>
      </div>
