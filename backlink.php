@@ -24,5 +24,5 @@
 <a href="https://isfm.faperika.unri.ac.id/wp.html">slot gacor</a>
 <a href="https://report.ppid.semarangkota.go.id/">slot gacor</a>
 <a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/gacorr/">bandar togel</a>
-<a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/4d/">togel online</a>
+<a href="https://balitbangda.oganilirkab.go.id/pro/">link slot gacor</a>
      </div>
