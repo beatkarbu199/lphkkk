@@ -6,7 +6,7 @@
 <a href="https://inspirationmars.com/">bandar togel terpercaya</a>
 <a href="https://sppd.banjarbaru-bagawi.id/-/">bandar togel terpercaya</a>
 <a href="https://aursati.desa.id/">toto slot 4d</a>
-<a href="https://eagenda.batangkab.go.id/vendor/js/">bandar togel</a>
+<a href="http://sismadak.rsudrsoetomo.jatimprov.go.id/uploads/file/">slot gacor</a>
 <a href="https://fisip.umj.ac.id/wp-content/upgrade/pro/">slot server thailand</a>
 <a href="http://ekinerja.tvri.go.id/dokfile_export/gcor/">slot gacor</a>
 <a href="https://dev.rsmanambai.ntbprov.go.id/js/shop/">slot88</a>
