@@ -18,7 +18,7 @@
 <a href="https://gallery.sim.co.id/vendor/bonus/">slot bonus</a>
 <a href="https://csr.brebeskab.go.id/public/dataupload/berita/fb/">slot88</a>
 <a href="https://purbasari.com/ibu/">slot 4d</a>
-<a href="https://simrs.rsmanambai.ntbprov.go.id/">link gacor</a>
+<a href="slemanapps.slemankab.go.id/pro/">bandar togel terpercaya</a>
 <a href="https://petaling.belitung.go.id/js/css/">slot gacor</a>
 <a href="https://bpbd.ppid.semarangkota.go.id/wp-includes/pro/">bandar togel</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">slot gacor</a>
