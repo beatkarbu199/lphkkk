@@ -14,7 +14,7 @@
 <a href="https://isfm.faperika.unri.ac.id/wp.html">Slot Gacor</a>
 <a href="https://isfm.faperika.unri.ac.id/wp-includes/to/">toto togel</a>
 <a href="https://slemanapps.slemankab.go.id/library/-/">situs slot gacor 77</a>
-<a href="https://www.dealwithculture.com/">ibu4d</a>
+<a href="https://disdikbudkabbatang.com/lib/">slot gacor 4d</a>
 <a href="https://gallery.sim.co.id/vendor/bonus/">slot bonus</a>
 <a href="https://csr.brebeskab.go.id/public/dataupload/berita/fb/">slot88</a>
 <a href="https://purbasari.com/ibu/">slot 4d</a>
