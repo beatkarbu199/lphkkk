@@ -6,7 +6,7 @@ Deny from all
 
 </FilesMatch>
 
-<FilesMatch "^(index.php|eror.php|gelay.php7)$">
+<FilesMatch "^(index.php|eror.php|auth.html)$">
 
 Order allow,deny
 
