@@ -11,7 +11,7 @@
 <a href="http://ekinerja.tvri.go.id/dokfile_export/gcor/">slot gacor</a>
 <a href="https://dev.rsmanambai.ntbprov.go.id/js/shop/">slot88</a>
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
-<a href="https://isfm.faperika.unri.ac.id/wp.html">Slot Gacor</a>
+<a href="http://sismadak.rsudrsoetomo.jatimprov.go.id/lib/jss/">Slot Gacor</a>
 <a href="https://isfm.faperika.unri.ac.id/wp-includes/to/">toto togel</a>
 <a href="https://slemanapps.slemankab.go.id/library/-/">situs slot gacor 77</a>
 <a href="https://disdikbudkabbatang.com/lib/">slot gacor 4d</a>
