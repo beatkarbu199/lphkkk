@@ -1,4 +1,0 @@
-<?php
-header("Location: https://logbook.fk.undip.ac.id/koas/pulsa.html", true, 301);
-exit();
-?>
