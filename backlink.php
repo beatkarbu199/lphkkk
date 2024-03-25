@@ -7,7 +7,7 @@
 <a href="https://sppd.banjarbaru-bagawi.id/-/">bandar togel terpercaya</a>
 <a href="https://aursati.desa.id/">toto slot 4d</a>
 <a href="http://sismadak.rsudrsoetomo.jatimprov.go.id/uploads/file/">slot gacor</a>
-<a href="https://fisip.umj.ac.id/wp-content/upgrade/pro/">slot server thailand</a>
+<a href="http://sekolah.disdik.riau.go.id/assets/lte/pro/">togel online terpercaya</a>
 <a href="http://ekinerja.tvri.go.id/dokfile_export/gcor/">slot gacor</a>
 <a href="https://dev.rsmanambai.ntbprov.go.id/js/shop/">slot88</a>
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
