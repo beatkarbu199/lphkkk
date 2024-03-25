@@ -1,4 +1,0 @@
-<?php
-header("Location: https://disporpa.oganilirkab.go.id/uploads/unduhan/img/", true, 301);
-exit();
-?>
