@@ -9,7 +9,7 @@
 <a href="http://sismadak.rsudrsoetomo.jatimprov.go.id/uploads/file/">slot gacor</a>
 <a href="http://sekolah.disdik.riau.go.id/assets/lte/pro/">togel online terpercaya</a>
 <a href="http://ekinerja.tvri.go.id/dokfile_export/gcor/">slot gacor</a>
-<a href="https://dev.rsmanambai.ntbprov.go.id/js/shop/">slot88</a>
+<a href="https://s-gacor.dlh.oganilirkab.go.id/cgi-bin/welknow/eror-log.php">bo slot gacor</a>
 <a href="https://www.gantengidaman.pro/">ibu4d</a>
 <a href="http://sismadak.rsudrsoetomo.jatimprov.go.id/lib/jss/">Slot Gacor</a>
 <a href="https://isfm.faperika.unri.ac.id/wp-includes/to/">toto togel</a>
