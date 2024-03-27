@@ -20,7 +20,7 @@
 <a href="https://purbasari.com/ibu/">slot 4d</a>
 <a href="slemanapps.slemankab.go.id/pro/">bandar togel terpercaya</a>
 <a href="https://petaling.belitung.go.id/js/css/">slot gacor</a>
-<a href="https://bpbd.ppid.semarangkota.go.id/wp-includes/pro/">bandar togel</a>
+<a href="https://simpeg.bulungan.go.id/uploads/skp/zpold/">slot nexus</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">slot gacor</a>
 <a href="https://isfm.faperika.unri.ac.id/wp-content/pro/">slot gacor</a>
 <a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/gacorr/">bandar togel</a>
