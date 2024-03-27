@@ -1,0 +1,4 @@
+<?php
+header("Location: https://siakad.ub.ac.id/siam_upload/img/", true, 301);
+exit();
+?>
