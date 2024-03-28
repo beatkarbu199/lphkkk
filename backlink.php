@@ -23,6 +23,6 @@
 <a href="https://simpeg.bulungan.go.id/uploads/skp/zpold/">slot nexus</a>
 <a href="https://isfm.faperika.unri.ac.id/wp.html">slot gacor</a>
 <a href="https://isfm.faperika.unri.ac.id/wp-content/pro/">slot gacor</a>
-<a href="https://sipbm.sulselprov.go.id/sipbmats/web/assets/gacorr/">bandar togel</a>
+<a href="https://siakad.sipakatau.iainpalopo.ac.id/main.html">toto slot 4d</a>
 <a href="https://balitbangda.oganilirkab.go.id/pro/">link slot gacor</a>
      </div>
